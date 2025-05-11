@@ -1,1 +1,0 @@
-# Cheny1-tech
